@@ -5,3 +5,4 @@
 * [🇧🇷 EPD Online](https://www.epdonline.com.br/palestras-gratis)
 * [🇧🇷 IOB Concursos](https://www.iobconcursos.com/palestras-gratis)
 * [🇧🇷 Palestras Online](https://palestras.online/#/home)
+* <a href="https://diversakinghost.eadplataforma.app/" target="_blank">🇧🇷 Diversa Para Todas As Pessoas - KingHost</a>
