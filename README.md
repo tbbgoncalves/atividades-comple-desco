@@ -6,3 +6,4 @@
 * [🇧🇷 IOB Concursos](https://www.iobconcursos.com/palestras-gratis)
 * [🇧🇷 Palestras Online](https://palestras.online/#/home)
 * <a href="https://diversakinghost.eadplataforma.app/" target="_blank">🇧🇷 Diversa Para Todas As Pessoas - KingHost</a>
+* [🇧🇷 Eu Capacito](https://www.eucapacito.com.br/)
