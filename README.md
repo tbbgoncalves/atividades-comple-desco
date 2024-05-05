@@ -7,3 +7,4 @@
 * [🇧🇷 Palestras Online](https://palestras.online/#/home)
 * <a href="https://diversakinghost.eadplataforma.app/" target="_blank">🇧🇷 Diversa Para Todas As Pessoas - KingHost</a>
 * [🇧🇷 Eu Capacito](https://www.eucapacito.com.br/)
+* [🇧🇷 Aprenda Mais](https://aprendamais.mec.gov.br/course/index.php?categoryid=8)
