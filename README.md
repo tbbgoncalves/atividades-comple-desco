@@ -8,3 +8,4 @@
 * <a href="https://diversakinghost.eadplataforma.app/" target="_blank">🇧🇷 Diversa Para Todas As Pessoas - KingHost</a>
 * [🇧🇷 Eu Capacito](https://www.eucapacito.com.br/)
 * [🇧🇷 Aprenda Mais](https://aprendamais.mec.gov.br/course/index.php?categoryid=8)
+* [🇧🇷 Cursos Gratuitos da FIAL](https://www.fiap.com.br/2022/06/06/fiap-disponibilza-20-cursos-gratuitos-nas-areas-de-tecnologia-e-negocios/)
